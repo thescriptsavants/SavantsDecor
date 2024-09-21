@@ -1,1 +1,1 @@
-interior decor.
+interior decor
